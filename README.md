@@ -1,7 +1,7 @@
 # Moral bankruptcy and reverse brain drain in the US
 December 6, 2023
 ## Summary
-As someone working in a top tech position in Fortune 10 company in the US who graduated from one of the top universities in the US, watching the moral bankruptcy by the US leaders who are funding and supporting the mass killing of children in Gaza is haunting me. Knowing that my taxes are contributing to this and that I'm spending my prime years, skills, and energy to support such brutal regime made me to start looking for a career somewhere else. 
+As someone working in a top tech position in Fortune 10 company in the US who graduated from one of the top universities in the US, I have been a technocrat believing that science and tech can make the world a better place. However, watching the moral bankruptcy by the US leaders who are funding and supporting the mass killing of children in Gaza is haunting me, it's not about politics anymore. Knowing that my taxes are contributing to this and that I'm spending my prime years, skills, and energy to support such morally bankrupt regime made me to start looking for a career somewhere else. 
 
 ## Will the US economy suffer from my absence? 
 Absolutely no, but at least I wouldn't feel the massive guilt. At least, I'd have a reasonable answer when my grandchildren ask me what did I do after learning in their history class about the 6,000 kids killed in Gaza by Israel with the US support in 2023.
