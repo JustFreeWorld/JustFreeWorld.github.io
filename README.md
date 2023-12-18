@@ -1,5 +1,6 @@
 # Do NOT retire with blood on your hands
 December 18, 2023
+
 US is actively involved in the indiscriminate killing of Palestinians.
 Politicians, senators, members of congress are all silent and/or afraid to talk.
 Large protests erupt in the US to express anger over the use of US taxpayer money to support mass killing of civilians in Gaza.
